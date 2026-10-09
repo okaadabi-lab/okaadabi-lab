@@ -38,4 +38,5 @@ I can walk through any of them.
 
 #### Contact
 
-oka.s.adabi@gmail.com
+- Email: oka.s.adabi@gmail.com
+- LinkedIn: [linkedin.com/in/oka-adabi-b9258b220](https://www.linkedin.com/in/oka-adabi-b9258b220/)
